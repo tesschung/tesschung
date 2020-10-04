@@ -1,1 +1,1 @@
-:star: Global Fintech Application Developer
+:star: 
